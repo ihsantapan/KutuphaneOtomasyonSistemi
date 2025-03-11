@@ -1,1 +1,1 @@
-BilgeAdam Boost Case Studt-1
+BilgeAdam Boost Case Study-1
